@@ -1,1 +1,0 @@
-High Elf Royal Guard by CorbeauProd on Thingiverse: https://www.thingiverse.com/thing:4814577
