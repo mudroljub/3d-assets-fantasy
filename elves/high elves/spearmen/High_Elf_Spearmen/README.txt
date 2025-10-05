@@ -1,1 +1,0 @@
-High Elf Spearmen by Ystlund on Thingiverse: https://www.thingiverse.com/thing:5383984
